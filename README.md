@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aggyzta
+- 👀 I’m interested in ... gatinhos fofinhos 
+- 🌱 I’m currently learning ... como jogar valorant
+- 💞️ I’m looking to collaborate on ... nada 
+- 📫 How to reach me ... é
